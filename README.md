@@ -5,3 +5,4 @@
 
 <img width="402" height="432" alt="Screenshot 2026-09-05 at 9 58 42 PM" src="https://github.com/user-attachments/assets/299ced9f-8642-4333-86f3-f50c3a2c3ba0" />
 
+A purple room witha nook, bookshelf, desk, and balcony! all purple themed because it is my favorite color and it has a cool window.
